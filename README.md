@@ -1,1 +1,1 @@
-# lkyq9.github.io
+# http//:lkyq9.github.io
